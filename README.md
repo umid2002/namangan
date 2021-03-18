@@ -1,0 +1,2 @@
+# namangan
+adwads
